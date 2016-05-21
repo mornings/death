@@ -16,3 +16,4 @@ Digital reads.
 7. http://www.newsweek.com/facebook-legacy-death-306344
 8. http://www.nytimes.com/2011/01/09/magazine/09Immortality-t.html?pagewanted=all&_r=0
 9. http://www.theloop.ca/dead-facebook-users-will-soon-outnumber-the-living/
+10. https://challenges.openideo.com/challenge/end-of-life/research

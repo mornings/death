@@ -17,3 +17,9 @@ Digital reads.
 8. http://www.nytimes.com/2011/01/09/magazine/09Immortality-t.html?pagewanted=all&_r=0
 9. http://www.theloop.ca/dead-facebook-users-will-soon-outnumber-the-living/
 10. https://challenges.openideo.com/challenge/end-of-life/research
+11. http://modernloss.com/
+12. http://www.nytimes.com/2016/03/13/fashion/facebook-breakup-compassion-team.html?_r=0
+13. https://www.instagram.com/p/BFygbQOG0EY/
+14. https://timestripe.com/
+15. http://www.beinganddying.com/
+16. http://beinganddying.tumblr.com/

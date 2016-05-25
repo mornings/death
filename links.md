@@ -23,3 +23,4 @@ Digital reads.
 14. https://timestripe.com/
 15. http://www.beinganddying.com/
 16. http://beinganddying.tumblr.com/
+17. https://stories.californiasunday.com/2015-04-05/death-redesigned
